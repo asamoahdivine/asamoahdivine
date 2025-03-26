@@ -1,5 +1,5 @@
 # 💫 About Me:
-<br>- 👨 I’m Asamoah Divine.<br>- 😄 Pronouns: he/him/his.<br>- 📧 How to reach me: contact@test.com<br>- 💬 Skype: Asamoah Divine<br>- 🌐 Website: https://test.com
+<br>- 👨 I’m Asamoah Divine.<br>- 😄 Pronouns: he/him.<br>- 📧 How to reach me: ()<br>-
 
 
 ## 🌐 Socials:
